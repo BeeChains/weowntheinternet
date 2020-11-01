@@ -4,6 +4,8 @@ You managed to find The Eternal Essence Within or what we call our [Inner I Net 
 
 Now, lets make a [Handshake](https://handshake.org/) stay home, go to [NameBase](https://namebase.io/) get a Decentralized DNS [Handshake Blockchain Top Level Domain](https://handshake.org/).
 
-- contact info found at [WEB SECURITY SPECIALIST](http://admin.websecurityspecialist/)
+- our [WEB SECURITY SPECIALIST](http://admin.websecurityspecialist/). 
+
+Use our Paxful Kiosk ⬇
 
 [Buy, Sell, or Trade here ![image](https://user-images.githubusercontent.com/37987346/97064635-5a94f300-1575-11eb-93ae-fc71560b1571.png)](https://paxful.com/roots/buy-bitcoin/index?kiosk=WDZdGMqXk7M)
